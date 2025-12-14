@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GNHNO3
 - 👀 I’m interested in esports
-- 🌱 I’m currently learning 12th class
+- 🌱 I’m currently btech cse(aids)
 - 💞️ I’m looking to collaborate on esports
 - 📫 How to reach me gnhno3@gmail.com
 - 😄 Pronouns: ...
